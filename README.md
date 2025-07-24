@@ -3,7 +3,7 @@ Trong bối cảnh nhu cầu vay vốn ngày càng tăng, nhiều người đang
 
 Thuê sổ tiết kiệm là gì?
 Thuê sổ tiết kiệm là việc một cá nhân hoặc doanh nghiệp thuê sổ tiết kiệm đứng tên người khác – thường là các cá nhân sở hữu sổ có giá trị lớn – nhằm mục đích sử dụng làm tài sản đảm bảo để vay vốn ngân hàng. Giao dịch này thường được thực hiện "chui", không qua công chứng hoặc sự đồng thuận của ngân hàng, khiến nó trở thành một hình thức không chính thống.
-
+Xem thêm: https://dichvutaichinh.vn/dich-vu-mo-so-tiet-kiem.html
 Lý do khiến dịch vụ này tồn tại
 Người vay thiếu tài sản đảm bảo: Nhiều người có nhu cầu vay vốn nhưng không có tài sản thế chấp phù hợp.
 
